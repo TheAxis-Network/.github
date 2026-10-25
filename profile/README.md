@@ -9,4 +9,4 @@ Bypassing internet c*ncorship as we go! TheAxis-Network is a group of open-sourc
 
 **You should also check out our [Website!](https://axisnet.work)**
 
-<sub>TheAxis-Network ¬_¬ | ^_^ | UwU | 2026<sub>
+<sub>TheAxis-Network ¬_¬ | ^_^ | UwU | 2026 email: support@axisnet.work<sub>
