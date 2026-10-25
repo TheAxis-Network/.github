@@ -8,3 +8,5 @@ Bypassing internet c*ncorship as we go!
 * [butter-col-app](https://github.com/TheAxis-Network/butter-col-app) - <sub>An example app for butter-col with custom frontend!<sub>
 
 **You should also check out our [Website!](https://axisnet.work)**
+
+<sub>TheAxis-Network ¬_¬ | ^_^ | UwU | 2026<sub>
