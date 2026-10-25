@@ -6,4 +6,4 @@ Bypassing internet c*ncorship as we go!
 ## Tools/Projects
 * nothin here yet!
 
-**You should also check out our [!ebsite!](https://axisnet.work)**
+**You should also check out our [Website!](https://axisnet.work)**
